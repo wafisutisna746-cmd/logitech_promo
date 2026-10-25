@@ -1,1 +1,1 @@
-# logitech_promo
+A promotion on the new Logitech PRO X3 SUPERSTRIKE
